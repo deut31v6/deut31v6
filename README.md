@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @deut31v6
-- 👀 I’m interested in women
+- 👀 I’m interested in women (and coding)
 - 🌱 I’m currently learning how to build websites
 - 💞️ I’m looking to collaborate on any future projects
 - 📫 How to reach me is through my email at deut31v6@comcast.net
